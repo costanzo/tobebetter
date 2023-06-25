@@ -1,1 +1,1 @@
-# To Learn and be better
+# To Learn and to be better
